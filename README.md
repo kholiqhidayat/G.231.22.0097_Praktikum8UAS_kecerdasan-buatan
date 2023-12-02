@@ -1,0 +1,1 @@
+# G.231.22.0097_Praktikum8UAS_kecerdasan-buatan
